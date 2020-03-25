@@ -1,2 +1,2 @@
 # Warrior_Codes
-A lad with hope to fix the previous mistakes and follow his passion of coding
+A lad who gives his 100% and wants to follow his passion of coding
